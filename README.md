@@ -21,7 +21,7 @@ Thus There Will Be a Grand Total of 200 Whales🐳 NFTs, So These All Whales🐳
 
 - 👀 I’m interested in NFTs
 - 💞️ I’m looking to collaborate With NFTs Promoters To Promote my NFTs
-- 📫 You Can Reach Me on My <a href="www.twitter.com/CountryWhales">Twitter Account</a> OR <a href="mailto:Contact@CountryWhale.com">Email Me</a>
+- 📫 You Can Reach Me on My <a href="https://twitter/countrywhale.com">Twitter Account</a> OR <a href="mailto:Contact@CountryWhale.com">Email Me</a>
 <br><br>
 
 <h1>Rare Whale🐳</h1>
